@@ -1,4 +1,4 @@
-# About Me:
+# About Me...
 🎓 Undergraduate specialising in Computer Networking.<br>💻 Passionate about systems, security, connectivity and web development.<br>🌐 Building my path one packet at a time.<br>I love Football #10 #neymarJr #messi #barcelona<br>
 
 
